@@ -1,11 +1,1 @@
-#####  <p align="center">  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=trody&color=424242&label=⠀+⑅ִ۫⠀⠀&style=flat)</p>
-
-<p align="center">
-  <img width="250" height="auto" alt="image" src="https://files.catbox.moe/thumbs/t_9kzvq3.png" />
-</p>
-
-<p align="center">
-  <a href="https://rentry.co/saparata"> rentr𝓎</a>　　　⠀ ⠀<img width="20" height="auto" alt="image" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/02/902eb213.gif" />⠀ ⠀　　　<a href="https://infected.atabook.org"> ataboo𝓀</a>
-  </p>
-
-<p align="center"> fluixons biggest fan :-) @fans-town </p>
+![](https://komarev.com/ghpvc/?username=trody&color=424242&label=hi&style=flat)
