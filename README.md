@@ -1,5 +1,11 @@
-![](https://komarev.com/ghpvc/?username=trody&color=424242&label=ok&style=flat)
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=trody&color=424242&label=shots+taken&style=flat">
+</p>
 
-![](https://media.discordapp.net/attachments/1174359818836910140/1537048852316557352/image.png?ex=6a7d9fcb&is=6a7c4e4b&hm=ec4337c1e952d68e086668de45fdfb82533a5e2d5e3116857ffcfea0f8129905&=&format=webp&quality=lossless)
+<p align="center">
+  <img src="https://i.pinimg.com/736x/59/df/eb/59dfeb528d325f13a73c398edf3b07e0.jpg" width="200">
+</p>
 
-[rentry](https://rentry.co/hewwo) [atabook](https://infected.atabook.org)
+<p align="center">
+  <a href="https://rentry.co/hewwo">rentry</a> & <a href="https://infected.atabook.org">atabook</a>
+</p>
