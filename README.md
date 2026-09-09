@@ -23,3 +23,10 @@ koda or flux𓈒 it/ask 🦌 17 yo<br>isfp-t 4w3 sp/sx
   </details>
   
   </h5>
+
+
+
+
+  <p align="center">
+  <img src="https://file.garden/Z6h2bh-K9iNK3QVg/image_2026-09-09_200736629.png?v=1788948458821"/><br>my favourite c.ai user & boundary breaker duo
+  </p>
