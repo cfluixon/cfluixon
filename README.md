@@ -9,7 +9,7 @@ this goddamn html is pissing me the fuck off why are you BOLD! i hate this and i
   </p>
 
 <p align="center">
-koda or flux𓈒 it/ask 🦌 17 yo<br>isfp-t 4w3 sp/sx
+koda or flux𓈒 it/ask 🦌 17 yo<br>mbti wtv 4w3 sp/sx
 </p>
 
 <details>
