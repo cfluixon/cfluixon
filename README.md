@@ -12,8 +12,9 @@
   <table align="center"><caption>
     <tr><td align="center">
    <p align="center">
-　　　　　　　　　　　　<br>↓ bffs<br><a href="https://github.com/blackbetta">@blackbetta</a><br><a href="https://github.com/deepaffection">@deepaffection</a><br><a href="https://github.com/ptsdparty">@ptsdparty</a><br>
-     <br>↓ ichor gc 23/12/24<br><a href="https://github.com/bluuer">@bluuer</a><br><a href="https://github.com/flankeee">@flankeee</a><br><a href="https://github.com/@kleinkunst">@mommy i mean kleinkunst</a><br><a href="https://github.com/fuziyamas">@fuziyamas</a><br>　
+　　　　　　　　　　　　<br>↓ bffs<br><a href="https://github.com/blackbetta">@blackbetta</a> ♡ <br><a href="https://github.com/deepaffection">@deepaffection</a><br><a href="https://github.com/ptsdparty">@ptsdparty </a> ♡ <br>
+     <br>↓ ichor gc 23/12/24<br><a href="https://github.com/bluuer">@bluuer</a><br><a href="https://github.com/flankeee">@flankeee</a><br><a href="https://github.com/@kleinkunst">@mommy i mean kleinkunst</a><br><a href="https://github.com/fuziyamas">@fuziyamas</a><br>
+<br>↓ party<br><a href="https://github.com/100bottlesofglue">@100bottlesofglue</a><br><a href="https://github.com/Orcapaint">@Orcapaint</a><br><a href="https://github.com/sourweevil">@sourweevil</a><br><a href="https://github.com/WHATSUR-ALIBI">@WHATSUR-ALIBI</a><br><a href="https://github.com/wubism">@wubism</a><br> 
             </p>
     </td></tr></caption></table>
   </details>
