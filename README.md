@@ -12,7 +12,7 @@
   <table align="center"><caption>
     <tr><td align="center">
    <p align="center">
-                 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<br>Hello my firneds<br> does this work
+                 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀<br><a href="https://github.com/blackbetta">@blackbetta</a><br>↑ they want me<br><a href="https://github.com/deepaffection">@deepaffection</a><br>↑ fav lesbian<br><a href="https://github.com/ptsdparty">@ptsdparty</a><br>↑ texter hehe<br><a href="https://github.com/bluuer">@bluuer</a><br><a href="https://github.com/flankeee">@flankeee</a><br>↑ ichor gc<br>
             </p>
     </td></tr></caption></table>
   </details>
