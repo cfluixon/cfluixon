@@ -12,7 +12,8 @@
   <table align="center"><caption>
     <tr><td align="center">
    <p align="center">
-                 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀<br><a href="https://github.com/blackbetta">@blackbetta</a><br>↑ they want me<br><a href="https://github.com/deepaffection">@deepaffection</a><br>↑ fav lesbian<br><a href="https://github.com/ptsdparty">@ptsdparty</a><br>↑ texter hehe<br><a href="https://github.com/bluuer">@bluuer</a><br><a href="https://github.com/flankeee">@flankeee</a><br>↑ ichor gc<br>
+　　　　　　　　　　　　<br>↓ bffs<br><a href="https://github.com/blackbetta">@blackbetta</a><br><a href="https://github.com/deepaffection">@deepaffection</a><br><a href="https://github.com/ptsdparty">@ptsdparty</a><br>
+     <br>↓ ichor gc 23/12/24<br><a href="https://github.com/bluuer">@bluuer</a><br><a href="https://github.com/flankeee">@flankeee</a><br><a href="https://github.com/@kleinkunst">@mommy i mean kleinkunst</a><br><a href="https://github.com/fuziyamas">@fuziyamas</a><br>　
             </p>
     </td></tr></caption></table>
   </details>
