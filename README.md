@@ -24,3 +24,7 @@
 <p align="center">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3152hej4rx6alviruqcx4h2xzbqi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=a1a1a1&bar_color_cover=false" width="200" height="auto">
 </p>
+
+<p align="center">
+<img src="https://file.garden/Z6h2bh-K9iNK3QVg/ok?v=1789127977793"><br>soda be a big they/them, be a normal person & dm me instead of trying to use fear tactics on me on ponytown.com you actual lunatic. did they ever medicate you for your self diagnosed npd bpd? no? they should 
+</p>
