@@ -26,5 +26,5 @@
 </p>
 
 <p align="center">
-<img src="https://file.garden/Z6h2bh-K9iNK3QVg/ok?v=1789127977793"><br>soda be a big they/them, be a normal person & dm me instead of trying to use fear tactics on me on ponytown.com you actual lunatic. did they ever medicate you for your self diagnosed npd bpd? no? they should 
+<img src="https://file.garden/Z6h2bh-K9iNK3QVg/ok?v=1789127977793"><br>soda be a big they/them, be a normal person & dm me instead of trying to use fear tactics on me on ponytown.com you actual lunatic. did they ever medicate you for your self diagnosed npd bpd? no? they should. reveal yourself faggot
 </p>
