@@ -20,3 +20,7 @@
   </details>
   
   </h5>
+
+<p align="center">
+  <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3152hej4rx6alviruqcx4h2xzbqi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=a1a1a1&bar_color_cover=false" width="220" height="auto">
+</p>
