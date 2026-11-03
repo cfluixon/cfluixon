@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img width="190 height="auto src="https://i.pinimg.com/1200x/bc/bb/d1/bcbbd1a3e7030c80ee2a51dd42390f1e.jpg"/><br>koda or doe𓈒 it/ask 🐇 17 yo<br>3w2 <b>sx</b> / sp 385 ISFP. pwDID<br>read my <a href="https://rentry.co/hewwo">rentry</a> & sign my <a href="https://infected.atabook.org/">ata</a>
+  <img width="190 height="auto src="https://i.pinimg.com/1200x/bc/bb/d1/bcbbd1a3e7030c80ee2a51dd42390f1e.jpg"/><br>youre just <a href="https://rentry.co/hewwo">rentry</a>bait bro<br>sign my <a href="https://infected.atabook.org/">ata</a> or 1v1 me
 </p>
 
 <h5 align="center">
